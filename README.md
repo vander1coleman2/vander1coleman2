@@ -2,5 +2,5 @@
 - 👀 I’m interested in ...as
 - 🌱 I’m currently lepci'hnkp;arning ...
 - 💞️ I’m looking to cobgdllaboasfrxczxsczate on ...
-- 📫vbc ✨ special ✨ repository becacxzcause its `README.md` (this file) appears oxczxcdvivxcsdfvcxvnkcvbcv vbvcbcvbtsco take a look at your changes.
+- 📫vbc ✨ special ✨ repository becacxzcause its `README.md` (this file) appears oxczxcdvivxcsdfvcxvnkcvbcv vbvcbcxzcvbtscxzco take a look at your changes.
 --->sfd
