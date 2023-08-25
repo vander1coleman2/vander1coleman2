@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vander1colemzxcanfd2sadxzcvvkj
-- 👀 I’m interested in ...as
+- 👀 I’m interested in ...asdzvcxvas
 - 🌱 I’m currently lepci'hnkp;arning ...
 - 💞️ I’m looking to cobgdllaboasfrxczxsczate on ...
 - 📫vbc ✨ special ✨ repository becacxzcause its `README.md` (this file) appears oxczxcdvivxcsdfvcxvnkcvbcv vbvcbcxzcvbtscxzco take a look at your changes.
